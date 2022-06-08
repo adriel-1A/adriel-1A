@@ -18,8 +18,12 @@
 -atualmente quero cursar medicina💉, se eu não mudar de ideia...
 
 -💵ser de bem com a vida, good vibes✌️
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+
+**Pode me encontrar**
+
+-Insta: @adriel.rodrigues.ofc
+
+-Email: adriel.rodrigues.ribeiro@escola.pr.gov.br
 
 <!---
 adriel-1A/adriel-1A is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
