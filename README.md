@@ -19,7 +19,7 @@
 
 -💵ser de bem com a vida, good vibes✌️
 
-**Pode me encontrar**
+## Pode me encontrar em...
 
 -Insta: @adriel.rodrigues.ofc
 
