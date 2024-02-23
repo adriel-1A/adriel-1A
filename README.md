@@ -1,27 +1,18 @@
-# ✌️Adriel✌ 
+# Adriel🌖
+
  
  ## interesses:
- -series 🍿
+ -Series & Filmes🍿
  
- -filmes 📺
+ -livros📚
  
- -livros 📘
+ -Músicas🎶
  
- -músicas 🎶
- 
- -e fofocas 😛
-
-## O que eu quero fazer:
-
--viajar pelo mundo 🌎
-
--atualmente quero cursar medicina💉, se eu não mudar de ideia...
-
--💵ser de bem com a vida, good vibes✌️
+ -Fofocas☕️
 
 ## Pode me encontrar em...
 
--Insta: @adriel.rodrigues.ofc
+-Insta: @ahdri.rodrigues
 
 -Email: adriel.rodrigues.ribeiro@escola.pr.gov.br
 
