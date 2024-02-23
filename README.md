@@ -12,7 +12,7 @@
 
 ## Pode me encontrar em...
 
--Insta: @ahdri.rodrigues
+-Insta: @ahdriel.rodrigues
 
 -Email: adriel.rodrigues.ribeiro@escola.pr.gov.br
 
